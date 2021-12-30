@@ -6,6 +6,10 @@
 
 - 🎧 Soy Youtuber De Minecraft.
 
-- 🔒Tengo 2 canales de YT: Primario: SrTrollGames2, Secundario: SrTroll Extra. 
+- 🔒Tengo 2 canales de YT: 
+
+- 💎 Primario: SrTrollGames2, 
+
+- 🎬 Secundario: SrTroll Extra. 
 
 ------------------------------------------
