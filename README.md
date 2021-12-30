@@ -13,4 +13,15 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+->
+---------------👤 My Info-----------------
+
+- 👋 Hola, Soy @SrTrollGames2.
+
+- 👀 Me Interesa: Discord.js, Html, Css.
+
+- 🎧 Soy Youtuber De Minecraft.
+
+- 🔒Tengo 2 canales de YT: Primario: SrTrollGames2, Secundario: SrTroll Extra. 
+
+------------------------------------------
