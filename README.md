@@ -10,6 +10,4 @@
 
 - 💎 Primario: SrTrollGames2, 
 
-- 🎬 Secundario: SrTroll Extra. 
-
 ------------------------------------------
